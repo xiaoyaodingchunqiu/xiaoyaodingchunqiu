@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xiaoyaodingchunqiu
-- 👀 I’m interested in sexey girl
+- 👀 I’m interested in sexy girl
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on small project
 - 📫 How to reach me :my wechat:z542727363
